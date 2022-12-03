@@ -11,7 +11,7 @@
 
 - 🌱 I’m currently learning *BCOM ACCA, WEB Designing*
 
-- 👯 I’m looking to collaborate on [IT Companies ( GOGGLE, INFOSYS)](https://www.infosys.com/)
+- 👯 I’m looking to collaborate on [IT Companies (INFOSYS)](https://www.infosys.com/)
 
 - 🤝 I’m looking for help with *Nothing*
 
